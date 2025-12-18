@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm Null, I'm a software developer and program as a hobby. 
+I'm shiv, I'm a software developer and program as a hobby. 
 As for my other hobbies, I mainly lift weights, play games, and run a Warframe clan with some friends.
 
 
